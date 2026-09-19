@@ -1,1 +1,1 @@
-The file anonymous.pdf contains additional results and figures as part of the response to the reviewers for the paper :Analytic Assessment of L2 Writing: A Q-Matrix-Informed Framework" submitted to ARR August 2026.
+The file anonymous.pdf contains additional results and figures as part of the response to the reviewers for the paper "Analytic Assessment of L2 Writing: A Q-Matrix-Informed Framework" submitted to ARR August 2026.
